@@ -1,3 +1,3 @@
 - 👋 Hej der
-- 👀 uNITY E tøft
-- 🌱 julian!
+- 👀 Litt erfaring med unity her
+- 🌱 Klar for mer
